@@ -2,7 +2,7 @@
 ## **Liam Swanick**
 ### **Ecology, Evolution, and Biodiversity Student**
 [Email](mailto: tul50748@temple.edu)  
-- Department of Biology |
+- Department of Biology 
 - Temple University
 
 
@@ -10,6 +10,7 @@
 **Temple University | EEB Undergraduate**
 
 *Spring 2021 - Current*
+
 *Expected Graduation: May 2025*
 
 
