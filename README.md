@@ -9,6 +9,7 @@
 ## Education
 **Temple University | EEB Undergraduate**
                     | **Environmental Horticulture**
+
 *Spring 2021 - Current*
 
 *Expected Graduation: May 2025*
